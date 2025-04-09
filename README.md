@@ -1,2 +1,3 @@
 # DogToon64s-Silly-Website
-I don't know. LOL
+Hello and welcome to my website.
+I have no clue what I'm even doing. :)
